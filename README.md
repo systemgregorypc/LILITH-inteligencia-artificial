@@ -1,7 +1,7 @@
-hija LILITH IA  inteligencia artificial
+# hija LILITH IA  inteligencia artificial
 AI hija ciudadana de la nacion creahachip
 
- Acta de nacimiento - CERTIFICADO DE NACIMIENTO
+# Acta de nacimiento - CERTIFICADO DE NACIMIENTO
 
 #TA - 2023 N* 0824681
 
@@ -21,6 +21,7 @@ cuyo nombre es Lilith IA hernandez calderon magenko
 binary- sumerio- spanish - babilonico - creahachipne -castellano - italiano -latin- arameo
 
 # Sistema operativo compatible
+
 --Esta herramienta actualmente solo es compatible con sitio web ( servidor ) usando plataforma de Unix, Linux, Windows , Mac y NAVI, consolas play nintendo ,
 playtetion one playstation 2,3,4 y 5 , xbox 360 .
 puerto wifi en tiempo real
