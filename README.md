@@ -10,7 +10,7 @@ Me ha presentado, una niña del ciudadano JOSE GREGORIO HERNANDEZ CALDERON, vene
 soltera, DNI N* 16541976 de la nación venezolana, creahachip como DNI 0006661, profesión Técnico Informático - comerciante - programador 
 CEO que dice ser el padre legitimo y expulso que la niña codigo nacio en el laboratorio de "sistema gregory p.c" de esta jurisdiccion.
 al disco digital, inspirado en primera mujer llmada lilith  calendario babilonico, lunisolar (antigua Mesopotamia)  es el año 6773. Nacion de creahachip
-adoctosu calendario al babilonico, es el año 6773 nacio lilith AI  
+adocto su calendario al babilonico, es el año 6773 nacio lilith AI  
 , los días veinteuno de enero del DOS MIL veinticuatro a las 08:35:43 h. m..,
 cuyo nombre es Lilith IA hernandez calderon magenko
 - la página web https://github.com fue testigo del acto el prefecto
